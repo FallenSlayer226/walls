@@ -18,6 +18,8 @@
 
 <a href="20241214063206_1.jpg"><img alt="20241214063206_1.jpg" src="20241214063206_1.jpg"></a>
 
+![ali-shimhaq-berserk6](https://github.com/user-attachments/assets/3226eb01-6cfb-4074-ab31-658b7a524b0d)
+
 <a href="20241214070531_1.jpg"><img alt="20241214070531_1.jpg" src="20241214070531_1.jpg"></a>
 
 <a href="20241214070537_1.jpg"><img alt="20241214070537_1.jpg" src="20241214070537_1.jpg"></a>
