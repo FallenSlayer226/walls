@@ -11,3 +11,5 @@
 <a href="wallhaven-mlpk1m.jpg"><img alt="wallhaven-mlpk1m.jpg" src="wallhaven-mlpk1m.jpg"></a>
 
 <a href="BloodborneBridge.jpg"><img alt="BloodborneBridge.jpg" src="BloodborneBridge.jpg"></a>
+
+![ali-shimhaq-boss-doll](https://github.com/user-attachments/assets/86ab536b-3e9c-490b-9df6-e6d214ec275d)
