@@ -96,4 +96,8 @@
 
 <a href="zenitsu.jpg"><img alt="zenitsu.jpg" src="zenitsu.jpg"></a>
 
+<img width="1920" height="1080" alt="Wallpaper" src="https://github.com/user-attachments/assets/89efd543-5a41-4566-afee-f0976d11f268" />
 
+<img width="1920" height="1080" alt="Wallpaper2" src="https://github.com/user-attachments/assets/3ca36a98-6282-4129-967a-4d8c3894e382" />
+
+<img width="1920" height="1080" alt="Wallpaper3" src="https://github.com/user-attachments/assets/4e7df486-b0d1-44a4-b0d1-48c7dcb1d0ce" />
