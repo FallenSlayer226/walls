@@ -68,3 +68,11 @@
 <a href="vukzTLx.png"><img alt="vukzTLx.png" src="vukzTLx.png"></a>
 
 <a href="wallhaven-zpmgwy.jpg"><img alt="wallhaven-zpmgwy.jpg" src="wallhaven-zpmgwy.jpg"></a>
+
+![yaroslav-kononenko-haloween-poster-01](https://github.com/user-attachments/assets/5262d655-f2b1-4d23-a466-3fec5e1a7bfe)
+
+![eleonora-noura-abdrakhmanova-edk-pumpkin-hex-art](https://github.com/user-attachments/assets/0631e35c-9fb7-43d7-8a8f-39a4d42c2144)
+
+![eric-hallquist-paintover-v4-3k](https://github.com/user-attachments/assets/a532e2a3-6abc-4af3-af82-54c93451fde3)
+
+![yaroslav-kononenko-haloween-poster-02](https://github.com/user-attachments/assets/c87cc368-00be-4243-b040-23943b736da6)
