@@ -103,3 +103,7 @@
 <img width="1920" height="1080" alt="Wallpaper3" src="https://github.com/user-attachments/assets/4e7df486-b0d1-44a4-b0d1-48c7dcb1d0ce" />
 
 <img width="2048" height="955" alt="IMG_0638" src="https://github.com/user-attachments/assets/c70f7224-1b77-462a-a8d3-b5503d9e4a1e" />
+
+<img width="1365" height="2048" alt="IMG_0634" src="https://github.com/user-attachments/assets/5b16e77a-3e63-4247-a270-9198fe8414d0" />
+
+<img width="1365" height="2048" alt="IMG_0635" src="https://github.com/user-attachments/assets/4330ad03-e0a2-46f5-bca5-380dc13915ed" />
