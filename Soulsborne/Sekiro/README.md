@@ -61,3 +61,5 @@
 <a href="sekiro desktop walllpaper 2.jpg"><img alt="sekiro desktop walllpaper 2.jpg" src="sekiro desktop walllpaper 2.jpg"></a>
 
 <a href="Sekiro Desktop wallpaper.jpg"><img alt="Sekiro Desktop wallpaper.jpg" src="Sekiro Desktop wallpaper.jpg"></a>
+
+<img width="1920" height="1097" alt="thumb-1920-1004017" src="https://github.com/user-attachments/assets/a36f116f-19a0-4df2-90d9-92213e9b5f03" />
