@@ -13,3 +13,11 @@
 <a href="DESKTOP WALLPAPER NITO.jpg"><img alt="DESKTOP WALLPAPER NITO.jpg" src="DESKTOP WALLPAPER NITO.jpg"></a>
 
 <a href="knight-sit.png"><img alt="knight-sit.png" src="knight-sit.png"></a>
+
+![wallhaven-r2lde1](https://github.com/user-attachments/assets/588ad059-ed09-4aac-89c0-58a2b2119886)
+
+![wallhaven-wyvoxr](https://github.com/user-attachments/assets/c5d91a43-d83c-438d-b1d3-79cc66148055)
+
+![wallhaven-od3gv7](https://github.com/user-attachments/assets/2abafb8f-d25d-4241-b3c5-dc6b836ef01f)
+
+![wallhaven-ey1q3w](https://github.com/user-attachments/assets/06d7cc69-781a-4f98-b7b0-66435299b9c9)
