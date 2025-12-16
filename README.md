@@ -29,7 +29,7 @@
 
 [Skyrim](Skyrim/README.md)
 
-[Soulsborne](Soulsborne/README.md)
+[Soulslike](Soulsborne/README.md)
 
 [Star Wars](https://github.com/FallenSlayer226/walls/blob/main/Star%20Wars/README.md)
 
