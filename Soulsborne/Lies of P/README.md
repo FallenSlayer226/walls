@@ -59,3 +59,5 @@
 ![20251213171842_1](https://github.com/user-attachments/assets/84782790-3624-4d22-98de-2a77d6b4d034)
 ![20251213171805_1](https://github.com/user-attachments/assets/2db1a1fa-2cbd-415f-bedd-cf192dd7ab08)
 ![20251213171615_1](https://github.com/user-attachments/assets/1bd8e138-319c-43a9-a6e2-109b30f1c449)
+<img width="1920" height="1080" alt="1704853434_new_Lies of P Screenshot 2024 01 09 - 11 21 20 30" src="https://github.com/user-attachments/assets/acbf6b3e-697d-4ad2-ba11-d68e3e3d455c" />
+
