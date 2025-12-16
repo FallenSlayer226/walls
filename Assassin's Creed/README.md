@@ -11,3 +11,4 @@
 <a href="Florence.jpg"><img alt="Florence.jpg" src="Florence.jpg"></a>
 
 ![Ezio_Tarot](https://github.com/user-attachments/assets/9760665d-2c54-4918-a952-f96b11558426)
+![Ezio_Eagle](https://github.com/user-attachments/assets/20f43c3c-2221-46a6-a9f7-c7c778e3f11a)
