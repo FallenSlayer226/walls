@@ -1,4 +1,4 @@
-# Soulslike Selector
+# Selector
 
 [Bloodborne](/Soulsborne/Bloodborne/README.md)
 
