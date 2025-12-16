@@ -21,3 +21,5 @@
 <a href="wallhaven-jxdyry.jpg"><img alt="wallhaven-jxdyry.jpg" src="wallhaven-jxdyry.jpg"></a>
 
 <a href="wallhaven-x81emv.png"><img alt="wallhaven-x81emv.png" src="wallhaven-x81emv.png"></a>
+
+<img width="386" height="405" alt="itachi" src="https://github.com/user-attachments/assets/d3255249-0a80-4e81-91f4-6b06fbf48f17" />
