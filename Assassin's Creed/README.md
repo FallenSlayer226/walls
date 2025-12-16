@@ -10,5 +10,4 @@
 
 <a href="Florence.jpg"><img alt="Florence.jpg" src="Florence.jpg"></a>
 
-<a href="wallhaven-yqmjjd.jpg"><img alt="wallhaven-yqmjjd.jpg" src="wallhaven-![Ezio_Tarot](https://github.com/user-attachments/assets/5e3956a4-94b9-4c28-b5b5-9df0c4d8daf0)
-yqmjjd.jpg"></a>
+![Ezio_Tarot](https://github.com/user-attachments/assets/9760665d-2c54-4918-a952-f96b11558426)
