@@ -73,6 +73,9 @@
 
 ![eleonora-noura-abdrakhmanova-edk-pumpkin-hex-art](https://github.com/user-attachments/assets/0631e35c-9fb7-43d7-8a8f-39a4d42c2144)
 
+![images steamusercontent](https://github.com/user-attachments/assets/b0cae513-0f3e-4e36-a742-ac34db49647f)
+
+
 ![eric-hallquist-paintover-v4-3k](https://github.com/user-attachments/assets/a532e2a3-6abc-4af3-af82-54c93451fde3)
 
 ![yaroslav-kononenko-haloween-poster-02](https://github.com/user-attachments/assets/c87cc368-00be-4243-b040-23943b736da6)
