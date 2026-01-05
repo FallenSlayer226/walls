@@ -13,3 +13,5 @@
 <a href="BloodborneBridge.jpg"><img alt="BloodborneBridge.jpg" src="BloodborneBridge.jpg"></a>
 
 ![ali-shimhaq-boss-doll](https://github.com/user-attachments/assets/86ab536b-3e9c-490b-9df6-e6d214ec275d)
+
+![wallhaven-oxxe2p](https://github.com/user-attachments/assets/c37945fb-d42b-4451-8f41-949c9f201954)
