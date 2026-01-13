@@ -1,25 +1,13 @@
 # Kaneki
-
-<a href="0lz4QWFN_4x.jpg"><img alt="0lz4QWFN_4x.jpg" src="0lz4QWFN_4x.jpg"></a>
-
-<a href="24pibODI_4x.jpg"><img alt="24pibODI_4x.jpg" src="24pibODI_4x.jpg"></a>
-
-<a href="AGYQPJF4_2x.jpg"><img alt="AGYQPJF4_2x.jpg" src="AGYQPJF4_2x.jpg"></a>
-
-<a href="BqF1Q39j_2x.jpg"><img alt="BqF1Q39j_2x.jpg" src="BqF1Q39j_2x.jpg"></a>
-
-<a href="C2cYZaLl_4x.jpg"><img alt="C2cYZaLl_4x.jpg" src="C2cYZaLl_4x.jpg"></a>
-
-<a href="GC0Ef3BD_4x.jpg"><img alt="GC0Ef3BD_4x.jpg" src="GC0Ef3BD_4x.jpg"></a>
-
-<a href="NyE5jChR_4x.jpg"><img alt="NyE5jChR_4x.jpg" src="NyE5jChR_4x.jpg"></a>
-
-<a href="PiN72rhY_2x.jpg"><img alt="PiN72rhY_2x.jpg" src="PiN72rhY_2x.jpg"></a>
-
-<a href="hRelCNXA_2x.jpg"><img alt="hRelCNXA_2x.jpg" src="hRelCNXA_2x.jpg"></a>
-
-<a href="jQSYdocq_2x.jpg"><img alt="jQSYdocq_2x.jpg" src="jQSYdocq_2x.jpg"></a>
-
-<a href="rYW5izwn_2x.jpg"><img alt="rYW5izwn_2x.jpg" src="rYW5izwn_2x.jpg"></a>
-
-<a href="uRG4fiOk_4x.jpg"><img alt="uRG4fiOk_4x.jpg" src="uRG4fiOk_4x.jpg"></a>
+![uRG4fiOk_4x](https://github.com/user-attachments/assets/09e59686-4bc2-481c-9ed0-3b2a3a7041bc)
+![rYW5izwn_2x](https://github.com/user-attachments/assets/0060e0c2-a55b-4cd6-9161-b9c876356632)
+![PiN72rhY_2x](https://github.com/user-attachments/assets/cdc0a927-7ca6-4173-be81-9a9511db4844)
+![NyE5jChR_4x](https://github.com/user-attachments/assets/a0bfe911-d41d-429e-8a2f-0a92d6666842)
+![jQSYdocq_2x](https://github.com/user-attachments/assets/4d92c816-6e46-4d99-a658-dd1243171bc2)
+![hRelCNXA_2x](https://github.com/user-attachments/assets/e36635cc-73ed-49b6-992b-2f179fde31c2)
+![GC0Ef3BD_4x](https://github.com/user-attachments/assets/d6cf1f4a-b372-4fd9-a4d6-00dfe2e1a2a4)
+![C2cYZaLl_4x](https://github.com/user-attachments/assets/4f89b6a3-c05e-4f3f-9400-bf94f3dfa5d2)
+![BqF1Q39j_2x](https://github.com/user-attachments/assets/ef48d06b-b4d5-46a5-88aa-fbe1e261f0e6)
+![AGYQPJF4_2x](https://github.com/user-attachments/assets/d40ab674-80d0-4378-b5ce-f9520603b2e2)
+![24pibODI_4x](https://github.com/user-attachments/assets/cbf92f02-d164-47ad-82bb-b9680d3910f5)
+![0lz4QWFN_4x](https://github.com/user-attachments/assets/bd2fc4a1-4ed3-414c-baac-ecdecd390903)
