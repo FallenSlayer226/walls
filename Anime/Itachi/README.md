@@ -1,25 +1,13 @@
 # Itachi
-
-<a href="5S1fYCID_2x.jpg"><img alt="5S1fYCID_2x.jpg" src="5S1fYCID_2x.jpg"></a>
-
-<a href="8uOLwz5X_2x.jpg"><img alt="8uOLwz5X_2x.jpg" src="8uOLwz5X_2x.jpg"></a>
-
-<a href="Amb7zcMl_2x.jpg"><img alt="Amb7zcMl_2x.jpg" src="Amb7zcMl_2x.jpg"></a>
-
-<a href="Itachi.jpg"><img alt="Itachi.jpg" src="Itachi.jpg"></a>
-
-<a href="RZQIuwas_2x.jpg"><img alt="RZQIuwas_2x.jpg" src="RZQIuwas_2x.jpg"></a>
-
-<a href="TVQYFPld_2x.jpg"><img alt="TVQYFPld_2x.jpg" src="TVQYFPld_2x.jpg"></a>
-
-<a href="deepak-jogi-pos-changed-stars.jpg"><img alt="deepak-jogi-pos-changed-stars.jpg" src="deepak-jogi-pos-changed-stars.jpg"></a>
-
-<a href="itachi-uchiha.png"><img alt="itachi-uchiha.png" src="itachi-uchiha.png"></a>
-
-<a href="rCYokW4l_2x.jpg"><img alt="rCYokW4l_2x.jpg" src="rCYokW4l_2x.jpg"></a>
-
-<a href="wallhaven-jxdyry.jpg"><img alt="wallhaven-jxdyry.jpg" src="wallhaven-jxdyry.jpg"></a>
-
-<a href="wallhaven-x81emv.png"><img alt="wallhaven-x81emv.png" src="wallhaven-x81emv.png"></a>
-
-<img width="386" height="405" alt="itachi" src="https://github.com/user-attachments/assets/d3255249-0a80-4e81-91f4-6b06fbf48f17" />
+<img width="1920" height="1080" alt="wallhaven-x81emv" src="https://github.com/user-attachments/assets/c8ccc039-edaf-475b-9c9b-8bab737db394" />
+![wallhaven-jxdyry](https://github.com/user-attachments/assets/03235a7f-b729-4764-a97c-4ea18a32bd60)
+![TVQYFPld_2x](https://github.com/user-attachments/assets/b5b920af-c1a5-4549-951f-e4aaf7aac0d2)
+![RZQIuwas_2x](https://github.com/user-attachments/assets/1ea0ad2e-b43f-43ed-bc5e-b011d3941550)
+![rCYokW4l_2x](https://github.com/user-attachments/assets/32a27c55-ca8f-4cae-a7eb-a71be3e09bca)
+<img width="3840" height="2160" alt="itachi-uchiha" src="https://github.com/user-attachments/assets/05dc6795-26c9-4ad3-b6e0-f4098f4b06fc" />
+![Itachi](https://github.com/user-attachments/assets/ae94ef21-6c10-4cb7-b336-aafea1130789)
+<img width="386" height="405" alt="itachi" src="https://github.com/user-attachments/assets/e121faab-2ce7-4f78-85bf-8638a3e69faf" />
+![deepak-jogi-pos-changed-stars](https://github.com/user-attachments/assets/754c69a1-b4c8-4bbf-86a9-f9c7bee2845f)
+![Amb7zcMl_2x](https://github.com/user-attachments/assets/a9b4ab8c-3c47-4fb1-af46-63c5f845de9f)
+![8uOLwz5X_2x](https://github.com/user-attachments/assets/b36b52ba-faff-478f-ae63-0d953db9037b)
+![5S1fYCID_2x](https://github.com/user-attachments/assets/06674673-2230-4147-aaf2-9b7354807b0b)
