@@ -1,109 +1,46 @@
 # Wallpapers
+![20241214070531_1](https://github.com/user-attachments/assets/80a36eb2-f968-49b2-bdbf-1e6a7f106e77)
+![20241214063206_1](https://github.com/user-attachments/assets/12baba42-06c5-4628-96fe-f42fd59f36df)
+![20241214063147_1](https://github.com/user-attachments/assets/2b9c6c46-f414-4aef-a035-ba5b17fb8d26)
+![20241213163337_1](https://github.com/user-attachments/assets/ae9bac87-721d-45a4-a0da-773e1dd1f61e)
+![20241213163327_1](https://github.com/user-attachments/assets/cd570b20-a96b-4d57-ad19-ef0314e12b16)
+![20241213162732_1](https://github.com/user-attachments/assets/79c4123a-0a79-4396-abac-0baa7cebdc2f)
+![117757728_p0_master1200](https://github.com/user-attachments/assets/eeb3976e-3083-4585-9d95-466a34848e06)
+<img width="2912" height="1632" alt="1361667" src="https://github.com/user-attachments/assets/7ea70994-2fe7-441c-aa40-d29516e7f21f" />
+<img width="2912" height="1632" alt="1360201" src="https://github.com/user-attachments/assets/57b6fe12-b785-4623-bdf6-3ea441833faf" />
+<img width="2912" height="1632" alt="1360063" src="https://github.com/user-attachments/assets/ca86ffbb-e81a-47d6-9b9f-55628b1935d8" />
+![37468d57207217 64a9706ac270d](https://github.com/user-attachments/assets/c2629e90-3b33-4c2e-886a-a1fc8adf8845)
+![1](https://github.com/user-attachments/assets/0d499fcc-ce02-4754-8ab9-691ea0ad14a0)
+<img width="7680" height="4320" alt="go-jo" src="https://github.com/user-attachments/assets/9406add6-0129-4f8e-97dd-8c0e1960a31c" />
+![FSF7AWAakAUsZSs](https://github.com/user-attachments/assets/6f214886-1fd5-4e07-97a9-12b847dccbe3)
+![FlUFQI6WAAA8-qE](https://github.com/user-attachments/assets/61b41a4f-d982-43b5-803b-e5f4465c495e)
+![FlUEHMXWYAUoB0q](https://github.com/user-attachments/assets/55e8fb0b-e3f7-4489-8d5f-e3785b33f197)
+![FiP-HexakAAduNy](https://github.com/user-attachments/assets/ffe2f15b-3b03-44a6-96dc-55f8746158c5)
+![E_r65upVIBsG-cx](https://github.com/user-attachments/assets/45188faa-38a9-4475-af85-0fe26ac88f38)
+![EOkF6rtUYAAv1Sg](https://github.com/user-attachments/assets/c342e683-df0f-4a40-be7d-64331ba9c4e5)
+![EjAoGEGVoAIXW-1](https://github.com/user-attachments/assets/3c1ae68d-533c-48c7-915f-7c1a36f9b49c)
+![berserker-armor](https://github.com/user-attachments/assets/29ebdb08-dba2-469c-8f16-513ba6e41078)
+<img width="5120" height="2880" alt="alucard" src="https://github.com/user-attachments/assets/cb2c2837-69c0-4a3a-9c98-bbb3e4cba223" />
+![ali-shimhaq-berserk6](https://github.com/user-attachments/assets/4ea6e9de-e4e1-4d13-8600-379ebe16c2f3)
+![20241214070537_1](https://github.com/user-attachments/assets/2f0538ef-685a-4b79-86e5-b6dc2a9ccb88)
+![neil-khan-pain](https://github.com/user-attachments/assets/636e55ef-ca54-4cfb-828e-f90967f1a06a)
+![neil-khan-kakashi-bg2](https://github.com/user-attachments/assets/cb64f2ee-eb1a-4948-bdfc-b001549a4726)
+![neil-khan-itachi-crows](https://github.com/user-attachments/assets/d8aeaed8-17cf-463f-9f2b-cecd00c0a3bc)
+<img width="1920" height="1080" alt="Manga-Wall" src="https://github.com/user-attachments/assets/05b19772-ff71-4918-892d-edd82cac2683" />
+![makima_is_listening](https://github.com/user-attachments/assets/639e8a62-af29-4a9d-8055-2b8c31f33380)
+<img width="5824" height="3264" alt="kakashi" src="https://github.com/user-attachments/assets/0ec82589-0cec-4c72-97b3-a748b182da1f" />
+<img width="5120" height="2880" alt="kakarot" src="https://github.com/user-attachments/assets/0ed18dc1-c4ff-4af3-b304-b2cddad7a309" />
+<img width="2048" height="955" alt="IMG_0638" src="https://github.com/user-attachments/assets/6577daad-5c94-4716-85da-84dd78bdb43d" />
+<img width="1365" height="2048" alt="IMG_0635" src="https://github.com/user-attachments/assets/8c3d7330-363d-46d0-be72-a1d6fde1fbc5" />
+<img width="1365" height="2048" alt="IMG_0634" src="https://github.com/user-attachments/assets/23514271-8f04-4ac2-ab54-c4ff0d49bc70" />
+![ichigo-kurosaki](https://github.com/user-attachments/assets/29c4be6d-c5a9-458d-b16b-2818a4099458)
+![hands-alucard](https://github.com/user-attachments/assets/ecc1224c-8bf8-4521-81a1-6b2657c0af72)
+![guts_smile](https://github.com/user-attachments/assets/fb2d060a-5251-4de0-8aad-c194a9964487)
+![gundam](https://github.com/user-attachments/assets/b7d02c1a-63cf-44a9-8027-b8328d375d69)
+![GQq-Ng6aAAAzIpt](https://github.com/user-attachments/assets/8631e653-31f7-4e4d-ba07-501f813fc4f0)
+<img width="8192" height="6144" alt="gojo" src="https://github.com/user-attachments/assets/5ce2fda9-5439-4964-8116-b936a2c4104f" />
+![sung-jinwoo](https://github.com/user-attachments/assets/74e68283-f08e-436f-ae22-b683715b08e2)
+<img width="5120" height="2880" alt="shinobu-kocho" src="https://github.com/user-attachments/assets/905024be-de29-483c-9cd1-50f59ea4874b" />
+![sasuke-uchiha](https://github.com/user-attachments/assets/374ec89e-777b-4311-8e8f-7b30378c5bbc)
+<img width="5120" height="2926" alt="roronoa-zoro" src="https://github.com/user-attachments/assets/a4aa971a-98a9-4ae6-873a-d0a6c3b4457f" />
 
-<a href="117757728_p0_master1200.jpg"><img alt="117757728_p0_master1200.jpg" src="117757728_p0_master1200.jpg"></a>
-
-<a href="1360063.png"><img alt="1360063.png" src="1360063.png"></a>
-
-<a href="1360201.png"><img alt="1360201.png" src="1360201.png"></a>
-
-<a href="1361667.png"><img alt="1361667.png" src="1361667.png"></a>
-
-<a href="20241213162732_1.jpg"><img alt="20241213162732_1.jpg" src="20241213162732_1.jpg"></a>
-
-<a href="20241213163327_1.jpg"><img alt="20241213163327_1.jpg" src="20241213163327_1.jpg"></a>
-
-<a href="20241213163337_1.jpg"><img alt="20241213163337_1.jpg" src="20241213163337_1.jpg"></a>
-
-<a href="20241214063147_1.jpg"><img alt="20241214063147_1.jpg" src="20241214063147_1.jpg"></a>
-
-<a href="20241214063206_1.jpg"><img alt="20241214063206_1.jpg" src="20241214063206_1.jpg"></a>
-
-![ali-shimhaq-berserk6](https://github.com/user-attachments/assets/3226eb01-6cfb-4074-ab31-658b7a524b0d)
-
-<a href="20241214070531_1.jpg"><img alt="20241214070531_1.jpg" src="20241214070531_1.jpg"></a>
-
-<a href="20241214070537_1.jpg"><img alt="20241214070537_1.jpg" src="20241214070537_1.jpg"></a>
-
-<a href="37468d57207217.64a9706ac270d.jpg"><img alt="37468d57207217.64a9706ac270d.jpg" src="37468d57207217.64a9706ac270d.jpg"></a>
-
-<a href="EOkF6rtUYAAv1Sg.jpg"><img alt="EOkF6rtUYAAv1Sg.jpg" src="EOkF6rtUYAAv1Sg.jpg"></a>
-
-<a href="E_r65upVIBsG-cx.jpg"><img alt="E_r65upVIBsG-cx.jpg" src="E_r65upVIBsG-cx.jpg"></a>
-
-<a href="EjAoGEGVoAIXW-1.jpg"><img alt="EjAoGEGVoAIXW-1.jpg" src="EjAoGEGVoAIXW-1.jpg"></a>
-
-<a href="FSF7AWAakAUsZSs.jpg"><img alt="FSF7AWAakAUsZSs.jpg" src="FSF7AWAakAUsZSs.jpg"></a>
-
-<a href="FiP-HexakAAduNy.jpg"><img alt="FiP-HexakAAduNy.jpg" src="FiP-HexakAAduNy.jpg"></a>
-
-<a href="FlUEHMXWYAUoB0q.jpg"><img alt="FlUEHMXWYAUoB0q.jpg" src="FlUEHMXWYAUoB0q.jpg"></a>
-
-<a href="FlUFQI6WAAA8-qE.jpg"><img alt="FlUFQI6WAAA8-qE.jpg" src="FlUFQI6WAAA8-qE.jpg"></a>
-
-<a href="GQq-Ng6aAAAzIpt.jpg"><img alt="GQq-Ng6aAAAzIpt.jpg" src="GQq-Ng6aAAAzIpt.jpg"></a>
-
-<a href="Manga-Wall.png"><img alt="Manga-Wall.png" src="Manga-Wall.png"></a>
-
-<a href="alucard.png"><img alt="alucard.png" src="alucard.png"></a>
-
-<a href="berserker-armor.jpg"><img alt="berserker-armor.jpg" src="berserker-armor.jpg"></a>
-
-<a href="go-jo.png"><img alt="go-jo.png" src="go-jo.png"></a>
-
-<a href="gojo.png"><img alt="gojo.png" src="gojo.png"></a>
-
-<a href="gundam.jpg"><img alt="gundam.jpg" src="gundam.jpg"></a>
-
-<a href="guts_smile.jpg"><img alt="guts_smile.jpg" src="guts_smile.jpg"></a>
-
-<a href="hands-alucard.jpg"><img alt="hands-alucard.jpg" src="hands-alucard.jpg"></a>
-
-<a href="ichigo-kurosaki.jpg"><img alt="ichigo-kurosaki.jpg" src="ichigo-kurosaki.jpg"></a>
-
-<a href="kakarot.png"><img alt="kakarot.png" src="kakarot.png"></a>
-
-<a href="kakashi.png"><img alt="kakashi.png" src="kakashi.png"></a>
-
-<a href="makima_is_listening.jpg"><img alt="makima_is_listening.jpg" src="makima_is_listening.jpg"></a>
-
-<a href="neil-khan-itachi-crows.jpg"><img alt="neil-khan-itachi-crows.jpg" src="neil-khan-itachi-crows.jpg"></a>
-
-<a href="neil-khan-kakashi-bg2.jpg"><img alt="neil-khan-kakashi-bg2.jpg" src="neil-khan-kakashi-bg2.jpg"></a>
-
-<a href="neil-khan-pain.jpg"><img alt="neil-khan-pain.jpg" src="neil-khan-pain.jpg"></a>
-
-<a href="roronoa-zoro.png"><img alt="roronoa-zoro.png" src="roronoa-zoro.png"></a>
-
-<a href="sasuke-uchiha.jpg"><img alt="sasuke-uchiha.jpg" src="sasuke-uchiha.jpg"></a>
-
-<a href="shinobu-kocho.png"><img alt="shinobu-kocho.png" src="shinobu-kocho.png"></a>
-
-<a href="sung-jinwoo.jpg"><img alt="sung-jinwoo.jpg" src="sung-jinwoo.jpg"></a>
-
-<a href="tanjiro.png"><img alt="tanjiro.png" src="tanjiro.png"></a>
-
-<a href="uwp982658.jpeg"><img alt="uwp982658.jpeg" src="uwp982658.jpeg"></a>
-
-<a href="vagabond.jpg"><img alt="vagabond.jpg" src="vagabond.jpg"></a>
-
-<a href="wallhaven-1jrp19.jpg"><img alt="wallhaven-1jrp19.jpg" src="wallhaven-1jrp19.jpg"></a>
-
-<a href="wallhaven-dpe35j.jpg"><img alt="wallhaven-dpe35j.jpg" src="wallhaven-dpe35j.jpg"></a>
-
-<a href="wallhaven-k7g62q.jpg"><img alt="wallhaven-k7g62q.jpg" src="wallhaven-k7g62q.jpg"></a>
-
-<a href="wallhaven-l31mwl.png"><img alt="wallhaven-l31mwl.png" src="wallhaven-l31mwl.png"></a>
-
-<a href="zenitsu.jpg"><img alt="zenitsu.jpg" src="zenitsu.jpg"></a>
-
-<img width="1920" height="1080" alt="Wallpaper" src="https://github.com/user-attachments/assets/89efd543-5a41-4566-afee-f0976d11f268" />
-
-<img width="1920" height="1080" alt="Wallpaper2" src="https://github.com/user-attachments/assets/3ca36a98-6282-4129-967a-4d8c3894e382" />
-
-<img width="1920" height="1080" alt="Wallpaper3" src="https://github.com/user-attachments/assets/4e7df486-b0d1-44a4-b0d1-48c7dcb1d0ce" />
-
-<img width="2048" height="955" alt="IMG_0638" src="https://github.com/user-attachments/assets/c70f7224-1b77-462a-a8d3-b5503d9e4a1e" />
-
-<img width="1365" height="2048" alt="IMG_0634" src="https://github.com/user-attachments/assets/5b16e77a-3e63-4247-a270-9198fe8414d0" />
-
-<img width="1365" height="2048" alt="IMG_0635" src="https://github.com/user-attachments/assets/4330ad03-e0a2-46f5-bca5-380dc13915ed" />
