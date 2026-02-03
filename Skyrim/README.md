@@ -149,3 +149,7 @@
 ![20251026202421_1](https://github.com/user-attachments/assets/8cbc1e79-40be-463f-a8ef-c3b1be39261f)
 
 <img width="1920" height="1080" alt="screenshot-2025-10-26_19-21-45" src="https://github.com/user-attachments/assets/c4c440e7-e5fe-4caa-85a3-7346b8259497" />
+
+<img width="3440" height="1440" alt="SkyrimSE_2025-12-19_21-11-20" src="https://github.com/user-attachments/assets/8e9e515a-bcde-45dd-9b52-407438a2683b" />
+
+![20251218200337_1](https://github.com/user-attachments/assets/81c2eb23-9186-4838-8f61-955f16d9866b)
