@@ -78,8 +78,11 @@
 <img width="2560" height="1600" alt="20260128024548_1" src="https://github.com/user-attachments/assets/fe8e2398-c391-434d-88ca-53d8ee1a23d9" />
 ![20260122223721_1](https://github.com/user-attachments/assets/b89793e3-4d9d-4b9c-90bd-b0d34279a919)
 ![489830_30](https://github.com/user-attachments/assets/a083869f-224f-43d9-b353-772ec99c8e25)
-
-
 <img width="3440" height="1440" alt="SkyrimSE_2025-12-19_21-11-20" src="https://github.com/user-attachments/assets/8e9e515a-bcde-45dd-9b52-407438a2683b" />
-
-![20251218200337_1](https://github.com/user-attachments/assets/81c2eb23-9186-4838-8f61-955f16d9866b)
+![202512![20260127012703_1](https://github.com/user-attachments/assets/ecf449c0-88d1-4f3a-a74a-b0918bcedbce)
+![20260126230147_1](https://github.com/user-attachments/assets/0db5a324-f1b4-4ff1-aae2-4e07f15d9267)
+![20260125192238_1](https://github.com/user-attachments/assets/854a0c28-7772-4e59-a362-a0799358df21)
+![20260125190039_1](https://github.com/user-attachments/assets/54fdea46-9fc9-401b-ae1f-e7de1e09fd4e)
+![20260125185120_1](https://github.com/user-attachments/assets/7d6048f3-9d35-401f-ad5f-90d8a73d5279)
+![20260125182858_1](https://github.com/user-attachments/assets/05dec6e3-9990-4530-8993-4f59c829811d)
+18200337_1](https://github.com/user-attachments/assets/81c2eb23-9186-4838-8f61-955f16d9866b)
